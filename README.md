@@ -42,6 +42,11 @@
 
 
 
+注意：考虑到github下载速度受限，另将资源放至百度网盘，链接如下：
+
+​	链接：https://pan.baidu.com/s/1Fn8VXsOqBUUXex_txSJwHA 
+​	提取码：9yuh
+
 
 
 
